@@ -1,5 +1,8 @@
 # Conclusion
 
+Conclusion
+==========
+
 In this book, we have explored the power of perception and how to create a personal brand that makes an impact. We have discussed the importance of personal branding for achieving success, and explored techniques for cultivating a mindset towards personal branding and overcoming personal obstacles.
 
 Recap of the Key Takeaways from the Book
