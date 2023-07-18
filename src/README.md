@@ -14,5 +14,4 @@ We will cover topics such as:
 
 Whether you are just starting out in your career or looking to take your personal brand to the next level, The Power of Perception will provide you with the tools and insights you need to create a personal brand that makes an impact. By following the steps outlined in this book, you can build a brand that reflects your authentic self and resonates with those around you, opening up new opportunities and possibilities for growth and success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
