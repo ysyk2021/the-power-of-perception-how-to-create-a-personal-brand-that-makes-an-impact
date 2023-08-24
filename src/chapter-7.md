@@ -1,5 +1,3 @@
-Chapter 6: Leveraging Thought Leadership
-========================================
 
 In this chapter, we will explore the role of thought leadership in enhancing your personal brand, techniques for developing expertise and sharing knowledge, and strategies for leveraging public speaking, writing, and other thought leadership opportunities.
 

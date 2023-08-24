@@ -1,5 +1,3 @@
-Chapter 5: Communicating with Impact
-====================================
 
 Effective communication is a critical component of building a powerful personal brand. In this chapter, we'll explore the importance of effective communication, techniques for developing strong communication skills across different channels, and strategies for delivering impactful messages and building credibility and influence.
 

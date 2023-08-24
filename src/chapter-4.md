@@ -1,5 +1,3 @@
-Chapter 3: Creating a Consistent Image
-======================================
 
 A consistent brand image is crucial for building a strong personal brand. In this chapter, we will explore the role of a consistent image in creating a powerful personal brand, techniques for developing a visual identity and messaging strategy, and strategies for leveraging social media and digital platforms to build a cohesive and impactful personal brand.
 
